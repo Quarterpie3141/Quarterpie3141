@@ -1,2 +1,2 @@
 - I’m @Quarterpie3141
-- 📫 How to reach me: prashan.csgo@gmail.com
+- 📫 How to reach me: prashan.qp@gmail.com
